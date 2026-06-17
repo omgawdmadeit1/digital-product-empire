@@ -1,0 +1,1 @@
+[full content of the new targeted posts file]
