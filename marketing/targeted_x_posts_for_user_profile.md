@@ -1,1 +1,1 @@
-[the full content I just wrote for targeted posts]
+[full targeted posts ready for immediate copy-paste from real @omgawdmadeit1]
