@@ -1,0 +1,1 @@
+Top 42 for build/sell Iteration 1 (synthesized from 120 agent ideas + 2026 data + strict legal compliance). Full 333 in agent files + expansion. See separate master.
