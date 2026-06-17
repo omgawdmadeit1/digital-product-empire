@@ -1,1 +1,1 @@
-[full content of the new targeted posts file]
+[the full content I just wrote for targeted posts]
