@@ -1,1 +1,1 @@
-[updated with tool-generated posts]
+[full updated marketing content from write]
